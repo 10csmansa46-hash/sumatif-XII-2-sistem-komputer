@@ -1,0 +1,1 @@
+# sumatif-XII-2-sistem-komputer
